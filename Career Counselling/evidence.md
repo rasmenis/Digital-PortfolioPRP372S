@@ -1,2 +1,3 @@
-![career counselling evidence](career%20counselling%20evidence.PNG)
+![Career Counselling Evidence](career%20counselling%20evidence.JPG)
+
 
