@@ -1,2 +1,2 @@
-![Personality Assessment](personality%20assessment.PNG)
+![Skills and Interests](skills%20and%20interests.PNG)
 
